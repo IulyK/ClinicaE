@@ -1,2 +1,0 @@
-# ClinicaE
-# ClinicaE
